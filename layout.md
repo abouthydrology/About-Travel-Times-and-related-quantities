@@ -17,8 +17,6 @@ offtj7k6aig.html
 bab7b8dnbn.html
 atjrb8ua86o.tex
 dironhnsl8g.html
-r7cj458fh18.tex
-47e6ugqello.html
 52lk9i5jvn8.tex
 epq7diep6b8.html
 dpesllrovbo.html
