@@ -16,6 +16,8 @@ bab7b8dnbn.html
 atjrb8ua86o.tex
 epq7diep6b8.html
 dpesllrovbo.html
+763l27illog.tex
+e81jsdb290o.html
 7v2e2o1maoo.tex
 9asa4ud1ip.html
 b1o7l3tujd.tex
