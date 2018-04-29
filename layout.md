@@ -26,6 +26,8 @@ b1o7l3tujd.tex
 vnpgsq5d0v8.html
 vcq65qi7hlg.tex
 msfve5cbi3o.html
+kku5oom84t8.tex
+fd6se42nno8.html
 jbsh4ocjjkg.html
 vpn8ska3a1.tex
 3eu3s68eu3o.html
