@@ -28,6 +28,8 @@ vcq65qi7hlg.tex
 msfve5cbi3o.html
 kku5oom84t8.tex
 fd6se42nno8.html
+5oev34902i.tex
+pstmscit628.html
 jbsh4ocjjkg.html
 vpn8ska3a1.tex
 3eu3s68eu3o.html
