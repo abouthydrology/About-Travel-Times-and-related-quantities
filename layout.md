@@ -46,6 +46,8 @@ b9c20ldfvug.html
 i0ndu0bj4ro.html
 16uth6re7jo.tex
 f4qi5m7vli8.html
+acaijujtjqg.tex
+80dlbkl4ucg.html
 jbsh4ocjjkg.html
 vpn8ska3a1.tex
 3eu3s68eu3o.html
